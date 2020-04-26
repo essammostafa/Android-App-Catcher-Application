@@ -1,0 +1,2 @@
+# Android-App-Catcher-Application
+A security application for the Palestinian police to detect and access stolen electronic devices that helps them reach the thief and better than the old way to track the robbery so that it contains addicted to the police officer and the user is the owner of the electronic devices store and the application has got the best application in the college and is now used in the Palestinian detective
